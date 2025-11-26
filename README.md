@@ -1,1 +1,3 @@
-[<img src="https://i.postimg.cc/7Z13W1pV/kdjaskdsa.png" width="400" height="200" alt="Description">](https://rb.gy/l6pp91)
+[<img width="300" height="205" alt="00fea4be-2a0c-4987-873d-52b032fe5b0c" src="https://github.com/user-attachments/assets/ac5e6707-1532-4237-89e7-fd8b44b928df" />](https://rb.gy/x60xvr)
+
+  G-E-t = S-a-V-e
